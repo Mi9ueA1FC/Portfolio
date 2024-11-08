@@ -1,6 +1,7 @@
 # Portfolio
 -Hobbies
-  I love music, videogames and reading
+
+  I love music, videogames and reading 
   
 -Personal goals
 
@@ -14,6 +15,10 @@
 
   Im a native spanish speaker
   
-  I am currently studying to get a b2 certificate in english
+  I am currently studying to get a b2 certificate in english :)
+
+  If you want to contact with me, you can send me an email tho this direction:
+
+  miguel.franco8702@alumnos.udg.mx
     
     
