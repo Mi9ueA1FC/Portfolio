@@ -17,7 +17,7 @@
   
   I am currently studying to get a b2 certificate in english :)
 
-  If you want to contact with me, you can send me an email tho this direction:
+  If you want to contact with me, you can send me an email to this direction:
 
   miguel.franco8702@alumnos.udg.mx
     
